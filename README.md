@@ -1,0 +1,2 @@
+# Turax
+Innovative Cryptocurrency
